@@ -5,20 +5,14 @@
 Hi !!
 </div>
 <div align="center">
-Knight/Yokhlinu/Doom/Rocket 
-</div>
-<div align="center">
-(Or call me by my cosplay! ^^)
+Knight/Yokhlinu/Doom 
 </div>
 <div align="center">
 He/Him
 </div>
 <div align="center">
-C + h freely I promise I dont bite !!
+C + h freely
 </div>
 <div align="center">
 Im offtab a lot so whispering is appreciated !!
-</div>
-<div align="center">
-Endless Torment Trio and TDU int plssssss
 </div>
